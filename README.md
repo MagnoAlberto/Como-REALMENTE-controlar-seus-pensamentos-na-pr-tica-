@@ -1,1 +1,1 @@
-# Como-REALMENTE-controlar-seus-pensamentos-na-pr-tica-
+# Como-REALMENTE-controlar-seus-pensamentos-na-pratica
